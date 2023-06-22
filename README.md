@@ -11,7 +11,7 @@
  **Estou participando do concurso Agrinho 2023 - programação**
 
 - Insta: [@Jheni_victoriaa02](https://www.instagram.com/jheni_victoriaa02/?next=%2F)
-- Dicord: zer0tw2, originalmente Zer0 Tw2 #5927 
+
 
  **Curiosidades**
 
