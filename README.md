@@ -21,5 +21,4 @@
 
 💞️ **Me and you against the whole world...**
 
-![](![image](https://github.com/jheni02/jheni02/assets/108354030/92a32935-2cb8-4374-9a50-72b001ba3c7d)
-)
+![](![image](https://github.com/jheni02/jheni02/assets/108354030/92a32935-2cb8-4374-9a50-72b001ba3c7d))
