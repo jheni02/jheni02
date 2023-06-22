@@ -6,4 +6,4 @@
 - 💞️  Programação 
 - 📫  Paranapoema-PR
 
-![](https://media.tenor.com/JD_BDk6qc0YAAAAC/zero-two.gif)
+![](https://media.tenor.com/_8Q6Wt_5lIIAAAAC/zero-two-smile.gif)
