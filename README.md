@@ -16,6 +16,7 @@
 - Gosto de animes
 - Gosto de estudar
 - Gosto de música
+- Gosto de games
 
 💞️ **Me and you against the whole world...**
 
