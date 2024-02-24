@@ -1,7 +1,7 @@
 **Seja bem vindo (a) ao meu GitHub**
 
 - 👋  Oi, eu sou a Jheni <3
-- 👀  Interessanda em passar de série
+- 👀  Interessada em passar de série
 - 🌱  NEM, 16y 
 - 💞️  Programação 
 - 📫  Paranapoema-PR
