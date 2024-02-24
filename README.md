@@ -6,7 +6,7 @@
 - 💞️  Programação 
 - 📫  Paranapoema-PR
 
- **Estou participando do concurso Agrinho 2023 - programação**
+ 🏆 **Campeã do Núcleo Regional de Educação de Paranavai- PR, no concurso Agrinho 2023 - programação**
 
 - Insta: [@Jheni_victoriaa02](https://www.instagram.com/jheni_victoriaa02/?next=%2F)
 
