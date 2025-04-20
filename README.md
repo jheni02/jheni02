@@ -2,11 +2,11 @@
 
 - 👋  Oi, eu sou a Jheni <3
 - 👀  Interessada em passar de série
-- 🌱  NEM, 16y 
+- 🌱  NEM, 17y 
 - 💞️  Programação 
 - 📫  Paranapoema-PR
 
- 🏆 **Campeã do Núcleo Regional de Educação de Paranavai- PR, no concurso Agrinho 2023 - programação**
+ 🏆 **Bicampeã do Núcleo Regional de Educação de Paranavai- PR, no concurso Agrinho 2023 e 2024 - programação**
 
 - Insta: [@Jheni_victoriaa02](https://www.instagram.com/jheni_victoriaa02/?next=%2F)
 
